@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Muhammed-cs
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Programming, Web Development
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me - @muhammed.java on Instagram or pizzawithdirt#2560 on discord.
